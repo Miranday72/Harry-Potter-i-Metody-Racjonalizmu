@@ -7,7 +7,7 @@
 -- Tak, Harry.
 -- A ty, mamo, według twojej teorii pani profesor powinna być w stanie to zrobić i\ jeśli to się nie stanie, potwierdzisz, że nie miałaś racji. Magia nie może działać, kiedy ludzie podchodzą do niej sceptycznie, czy coś w\ tym stylu. -- Wicedyrektorka Minerva McGonagall patrzyła na Harry'ego ze zdezorientowaną miną. Rzeczywiście wyglądała całkiem jak czarownica w swoich czarnych szatach i\ spiczastym kapeluszu, ale brzmiała oficjalnie i\ miała szkocki akcent, co w\ ogóle do siebie nie pasowało. Na pierwszy rzut oka wyglądała jak ktoś, kto powinien rechotać i\ wrzucać dzieci do kociołka, ale cały efekt znikał, kiedy tylko otworzyła usta.
 -- Czy to wystarczy, panie Potter? -- spytała. -- Mogę zaczynać?
--- *Wystarczy*? Prawdopodobnie nie -- powiedział Harry. -- Ale to co najmniej *pomoże*. Proszę zaczynać, pani wicedyrektor. 
+-- *Wystarczy*? Prawdopodobnie nie -- powiedział Harry. -- Ale na pewno *pomoże*. Proszę zaczynać, pani wicedyrektor. 
 -- Wystarczy pani profesor -- powiedziała, a\ potem -- *Wingardium Leviosa*. -- Harry popatrzył na swojego ojca. 
 -- Huh -- powiedział. Jego tata popatrzył na niego.
 -- Huh -- powtórzył mężczyzna. Po czym profesor Verres-Evans spojrzał na profesor McGonagall. - W porządku, może mnie pani teraz opuścić - I\ jego ojciec został ostrożnie opuszczony na ziemię. Harry przejechał ręką po włosach. Być może to z powodu tego, że część niego *już* była przekonana, ale…
